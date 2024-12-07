@@ -1,4 +1,4 @@
-# 💫 About Me:I am an classical dancer and an software Developer
+# 💫 About Me:dreamed to be software Developer
 Software Developer
 
 
